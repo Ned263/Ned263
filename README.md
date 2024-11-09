@@ -1,3 +1,4 @@
+
 - 👋 Hi, I’m @Ned263
 - 👀 I’m interested in improving people's social life 
 - 🌱 I’m currently learning Human resources management 
